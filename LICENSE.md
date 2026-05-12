@@ -1,4 +1,4 @@
-# 
+# iMovie for macOS custom Script: real-time-effects & slow-motion is the best iMovie for macOS script, featuring real-time-effects and slow-motion. Safe, efficient, and optimized
 
 
 
